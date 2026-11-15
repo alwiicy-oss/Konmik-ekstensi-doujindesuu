@@ -1,1 +1,0 @@
-# Konmik-ekstensi-doujindesuu
